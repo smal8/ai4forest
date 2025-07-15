@@ -1,1 +1,1 @@
-Work from research internship at ZIB
+Work from ZIB
